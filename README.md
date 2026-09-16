@@ -1,0 +1,2 @@
+# Cristo-pago-Todo
+Romanos 5:8 Mas Dios muestra su amor para con nosotros, en que siendo aún pecadores, Cristo murió por nosotros. 
